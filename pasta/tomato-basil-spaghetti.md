@@ -1,6 +1,6 @@
 # tomato basil spaghetti
 
-## Ingredeints
+## Ingredients
 
 - Spaghetti (enough for your serving size)
 - 2-3 ripe tomatoes, diced
